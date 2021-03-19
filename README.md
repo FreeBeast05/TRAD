@@ -1,0 +1,2 @@
+# TRAD
+См. TRAD.pdf
